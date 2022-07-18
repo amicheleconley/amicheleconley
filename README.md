@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @amicheleconley
+
 I have always been fascinated by technology. Ever since I first got my hands on an NES controller at the age of 3, I knew that my life would be shaped by computers. I am a determined and creative problem solver who is always looking for new ways to handle challenges. I feel truly at home when I can combine solution-seeking with my love for all things tech. I know how to formulate a plan, and know how to execute that plan even better. 
 
 When I'm not in front of one of the many screens in my house - be it my self-built PC's two monitors, my laptop, my phone, a Steam Deck, or any number of handheld game consoles - I can be found hiking the great outdoors. I am a passionate proponent of the National Parks, and frequently take time to enjoy the surprising amount of small parks hidden in the nooks and crannies of Northeast Ohio. Some might think these two interests incompatible; but I believe technology can improve our relationship with nature, and vice versa. I'd love to do work which combines both of these worlds someday!
